@@ -1,5 +1,4 @@
-# guarantee
-How its done
-Every work i do will remotely supporting 
-aham designer I take responsibility there by supporting 
-and enhancing
+# श्रत्करोति
+किम्
+एकैक प्रयुक्ति आशय दूराभिगम भरति 
+अहं वेधस् स्वीकरोति दायित्व
